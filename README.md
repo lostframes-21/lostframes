@@ -5,6 +5,6 @@ Just streets, light, and time.
 
 I usually shoot late evenings.
 Rain makes reflections better.
-The city feels different when trains slow everything down.
+The city feels different when local trains slow everything down.
 
 Still learning. Still observing.
