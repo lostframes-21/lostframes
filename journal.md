@@ -1,10 +1,18 @@
-### Journal — August
+### डायरी — अगस्त
 
-The rains haven’t stopped for days.
-Power cuts are annoying, but manageable.
+इस हफ्ते बारिश रुकने का नाम नहीं ले रही।
+सड़कों पर पानी और हर तरफ़ रिफ्लेक्शन।
 
-Evening walks help.
-There’s an old suburban line not too far —
-the 18:42 local still rattles past like clockwork.
+बिजली कभी-कभी चली जाती है,
+लेकिन आदत हो गई है।
+गीली कंक्रीट और समंदर की हवा की
+मिली-जुली सी खुशबू रहती है।
 
-Editing photos with chai by the window feels right.
+शाम को टहलना थोड़ा सुकून देता है।
+पास की पुरानी सबअर्बन लाइन पर
+18:42 की लोकल ट्रेन रोज़ की तरह गुजर जाती है।
+
+खिड़की के पास बैठकर फोटो एडिट करना,
+कटिंग चाय के साथ,
+दूर से हॉर्न और पटरियों की आवाज़ सुनना —
+यही घर जैसा लगता है।
